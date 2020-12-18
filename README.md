@@ -1,0 +1,2 @@
+# fang
+life is eternal
